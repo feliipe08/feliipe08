@@ -1,0 +1,3 @@
+- 👋 Olá, sou @feliipe08 
+- 👀 Estou interessado em : aprender novas coisas
+- 🌱 Atualmente estou aprendendo : a fazer projetos
